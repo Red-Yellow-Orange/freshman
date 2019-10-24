@@ -1,2 +1,3 @@
 # freshman
 Just have a try.
+hahahaha  I think that I just have some ideas of how to use this big stuff...
